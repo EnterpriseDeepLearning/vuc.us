@@ -1,1 +1,1 @@
-[vuc.us](vuc.us)
+[vuc.us](http://vuc.us)
