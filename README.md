@@ -1,1 +1,1 @@
-[vuc.us](http://vuc.us)
+[www.enterprisedeeplearning.com](http://enterprisedeeplearning.com)
